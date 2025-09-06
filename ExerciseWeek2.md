@@ -1,0 +1,1 @@
+Github änk till Övningar vecka 2 övning 1-4 https://github.com/Haval-Jalal/min-presentation.git
